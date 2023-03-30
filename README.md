@@ -1,1 +1,1 @@
-# mirz.lol
+# seppukux-site
